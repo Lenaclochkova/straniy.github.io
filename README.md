@@ -1,0 +1,1 @@
+# straniy.github.io
